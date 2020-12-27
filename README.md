@@ -6,7 +6,6 @@
 
 - [动态网](https://aq1.abcd3.eu.org/haer/a223r) 
 - [综合资讯](https://github.com/phqfjo324/www/blob/master/README.md)
-- [真相视频](Truth/videos.md)
 
 ---
 
