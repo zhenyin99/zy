@@ -2,6 +2,10 @@
 
 ---
 
+大疫当前，送您 [避疫良方](Truth/biyi/biyi-index.md) 
+
+---
+
 ### 正义媒体
 
 - [动态网](https://aq1.abcd3.eu.org/haer/a223r) 
